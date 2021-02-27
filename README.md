@@ -2,7 +2,6 @@
 
 - 🔭 I’m currently working on my skills in Cyber Security 
 - 🌱 I’m currently learning Networking and Programming .
-- 👯 I’m looking to collaborate on Youtube and Instagram .
 - 🤔 I’m looking for help Programming Skills . 
 - 💬 Ask me about any Tech realated stuff . 
 - 📫 How to reach me: https://twitter.com/Shubham61464340 , https://www.instagram.com/shubham_chaurasia__/ .
