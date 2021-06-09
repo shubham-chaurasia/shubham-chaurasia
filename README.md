@@ -1,9 +1,9 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on my skills in Cyber Security 
-- 🌱 I’m currently learning Networking and Programming .
-- 🤔 I’m looking for help Programming Skills . 
-- 💬 Ask me about any Tech realated stuff . 
+- 🔭 I’m currently working on my skills in Digital Marketing and Web development 
+- 🌱 I’m currently learning Networking and Programming.
+- 🤔 I’m looking for help Marketing Skills. 
+- 💬 Ask me about any SEO realted stuff. 
 - 📫 How to reach me: https://twitter.com/Shubham61464340 , https://www.instagram.com/shubham_chaurasia__/ .
 - ⚡ Fun fact: I am very shy and introvert type person .
 
