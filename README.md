@@ -2,8 +2,8 @@
 
 - 🔭 I’m currently working on my skills in Neuro Marketing and Data Analysis
 - 🌱 I’m currently learning Machine Learning Models 
-- 🤔 I’m looking for job in Google 😂 
-- 💬 Ask me about any SEO, Paid Ads, Web development and Data Analysis stuffs. 
+- 🤔 If you want SEO Consultation https://shubhamc.netlify.app
+- 💬 Ask me about anything about SEO, Paid Ads, Web development and Data Analysis stuffs. 
 - 📫 How to reach me: https://twitter.com/shubham91i , https://www.instagram.com/shubham_chaurasia__/ .
 - ⚡ Fun fact: I am very shy and introvert type person but can perform Rap and Poetry.
 
